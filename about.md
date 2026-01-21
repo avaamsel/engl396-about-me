@@ -12,18 +12,18 @@ I've been a lifelong fan of grunge music. My mom was an original follower of the
 ### Here is some of my Spotify Wrapped information for 2025:
 
 **Top Artists:**
-  1. Alice in Chains
-  2. Stone Temple Pilots
-  3. Pearl Jam
-  4. Soundgarden
-  5. Iron & Wine
+1. Alice in Chains
+2. Stone Temple Pilots
+3. Pearl Jam
+4. Soundgarden
+5. Iron & Wine
 
 **Top Albums:**
-  1. Dirt - Alice in Chains
-  2. Facelift - Alice in Chains
-  3. "Tripod" - Alice in Chains
-  4. Purple - Stone Temple Pilots
-  5. Throwing Copper - Live, (absolutely amazing post-grunge album)
+1. Dirt - Alice in Chains
+2. Facelift - Alice in Chains
+3. "Tripod" - Alice in Chains
+4. Purple - Stone Temple Pilots
+5. Throwing Copper - Live, (absolutely amazing post-grunge album)
 
 # Cats...
 I am a massive cat person. My family currently has **four** cats, but my parents also like to take care of any cat in our neighborhood that visits us.
